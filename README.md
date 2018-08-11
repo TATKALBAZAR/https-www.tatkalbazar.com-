@@ -1,2 +1,2 @@
-# https-www.tatkalbazar.com-
+# https-www.tatkalbazar.com
 tatkal software
